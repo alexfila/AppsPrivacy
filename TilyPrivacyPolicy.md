@@ -1,6 +1,6 @@
 Terms and Conditions (Tily)
 
-By downloading or using the Tily app (at tily.app) and placing an order, you agree to these Terms of Service.  Your use of our services – including uploading photos or images to be printed on 30 × 30 cm tiles – constitutes acceptance of these Terms .  Tily provides a tile-printing service: you supply the image, we print it on a tile (a 30 cm × 30 cm × 3 mm panel), and ship it to you. The tiles are intended solely for personal, decorative use (e.g. home decor) and not for resale or mass distribution.  We do not produce mass copies of any design for events or commercial purposes.
+By downloading or using the Tily app (at tily.app) and placing an order, you agree to these Terms of Service.  Your use of our services – including uploading photos or images to be printed on our custom tiles – constitutes acceptance of these Terms .  Tily provides a tile-printing service: you supply the image, we print it on our custom tile, and ship it to you. The tiles are intended solely for personal, decorative use (e.g. home decor) and not for resale or mass distribution.  We do not produce mass copies of any design for events or commercial purposes.
 
 User Content and Responsibilities
 

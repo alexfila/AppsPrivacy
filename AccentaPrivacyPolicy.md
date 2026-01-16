@@ -1,6 +1,6 @@
 Privacy Policy for Accenta Application
 
-Effective Date: December 20, 2025
+Effective Date: January 16, 2026
 
 This Privacy Policy outlines how the Accenta application collects, uses, and protects user data. By using the Accenta application, you agree to the terms described herein.
 
